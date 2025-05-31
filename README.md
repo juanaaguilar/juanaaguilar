@@ -4,7 +4,7 @@
 
 
 ## 🚀 About Me
-Im a Systems Engineering student from Argentina. :)
+Im a Systems Engineering student from Argentina 🧉🇦🇷
 
 
 
